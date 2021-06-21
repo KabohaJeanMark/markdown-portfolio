@@ -1,0 +1,2 @@
+- [GitHub](https://github.com/KabohaJeanMark)
+- [LinkedIn](https://www.linkedin.com/in/jean-mark-kaboha-software-engineer/)
